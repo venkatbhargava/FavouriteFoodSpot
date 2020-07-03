@@ -4,4 +4,5 @@
 ![Screenshot 2020-07-02 at 8 57 43 PM](https://user-images.githubusercontent.com/66465555/86379094-05706100-bca8-11ea-9748-8351d4678d48.png)
 ![Screenshot 2020-07-02 at 9 00 13 PM](https://user-images.githubusercontent.com/66465555/86379111-0b664200-bca8-11ea-9acc-63d408f2108b.png)
 ![Screenshot 2020-07-02 at 9 00 42 PM](https://user-images.githubusercontent.com/66465555/86379123-102af600-bca8-11ea-8254-f5c50b5a95e1.png)
+![Screenshot 2020-07-03 at 6 01 59 PM](https://user-images.githubusercontent.com/66465555/86469579-512e1380-bd57-11ea-8664-09bcffb8861c.png)
 
